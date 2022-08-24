@@ -1,1 +1,1 @@
-'Tunchi is the best MF'
+'lil wayne is the goat argue with your father'
